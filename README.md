@@ -2,4 +2,5 @@ chris , 9teen , introvert and inactive
 
 [rentry](https://rentry.co/normalizekiling)
 
-![17586514368638096354814401704755](https://github.com/user-attachments/assets/3d3978d7-ad7c-4e3e-af8c-21a3b002eed6)
+
+![17586517057166698297219066471407](https://github.com/user-attachments/assets/3c4a3ad5-dde6-4f45-9735-fdd037033d5f)
