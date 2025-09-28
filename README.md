@@ -1,4 +1,4 @@
-chris , 9teen , introvert and inactive
+chris , 9teen , introvert 
 
 
-![17586517057166698297219066471407](https://github.com/user-attachments/assets/3c4a3ad5-dde6-4f45-9735-fdd037033d5f)
+<img width="980" height="980" alt="17590238958003389383213052533148" src="https://github.com/user-attachments/assets/b95a332d-2aac-4c08-b7d7-6ec3e73a8516" />
